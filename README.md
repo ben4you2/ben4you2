@@ -15,8 +15,8 @@ Here are some ideas to get you started:
 - ⚡ Fun fact: ...
 -->
 
-📝📇 I am working on prject that i like and love to develop good apps and software. And i was working on projects that are like other that had veen devlopped to fix big problems of this entire world.
+📝📇 I am working on prject that i like and love to develop good apps and software. And i was working on projects that are like other that had been devlopped to fix big problems of this entire world.
 
 📚🖥️⌨️ That is to let you know what was on my mind for projects like what were mentioned above, collaboration is something that makes people feel a little bit competetive and developed.
 
-🖨️🗜️ Programs are what we work on to develop and design. We design software and work applications to help users make their daily living easier than before.
+🖨️🗜️ Programs are what we work on to develop and design. We design softwares and work applications to help users make their daily living easier than before.
